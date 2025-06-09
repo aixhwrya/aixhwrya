@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aixhwrya
+- 👋 Hi, I’m Aishwarya
 - 👀 I’m interested in IT
 - 🌱 I’m currently pursuing BCA
 - 📫 How to reach me - instagram @aixhwrya
